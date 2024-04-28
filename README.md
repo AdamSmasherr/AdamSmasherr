@@ -1,6 +1,8 @@
+![porf1](https://github.com/AdamSmasherr/AdamSmasherr/assets/168091118/857318fa-e015-4b0a-b42e-6df713687031)
+
 # Hello, I'm [Ilya] 👋
 
-I'm a student and a freelance professional specializing in **3D modeling**, **animation**, and **video editing**. I have experience working on projects for various companies and thrive in team environments.
+I'm a student and a freelance professional specializing in **3D modeling** **coding**, **animation**, and **video editing**. I have experience working on projects for various companies and thrive in team environments.
 
 ## Skills 🛠️
 
