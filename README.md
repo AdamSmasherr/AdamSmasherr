@@ -1,4 +1,4 @@
-![porf1](https://github.com/AdamSmasherr/AdamSmasherr/assets/168091118/857318fa-e015-4b0a-b42e-6df713687031)
+![portfol21-1](https://github.com/AdamSmasherr/AdamSmasherr/assets/168091118/7c694aa9-70bb-4e32-a970-da450b3f549d)
 
 # Hello, I'm [Ilya] 👋
 
